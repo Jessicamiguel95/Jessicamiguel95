@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Jessicamiguel95
-- 👀 I’m interested in ... APRENDER A FAZR PROJETOS 
-- 🌱 I’m currently learning ... AS TEORIAS SOBE SOCIALISMO, FILOSOFIA 
+- 👀 I’m interested in ... APRENDER A FAZeR PROJETOS 
+- 🌱 I’m currently learning ... EMPRENDEDORISMO E INOVAÇÃO 
 - 
 - 💞️ I’m looking to collaborate on TODOS OS ASPECTOS QUE EU POSSA TRANSFERIR MEUS CONHECIMENTOS 
 - 📫 How to reach me ... 5519982196199
